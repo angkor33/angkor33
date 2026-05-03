@@ -1,16 +1,51 @@
-## Hi there 👋
+# Best Online Casino in Cambodia 2026
 
-<!--
-**angkor33/angkor33** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+The online casino market in Cambodia is growing rapidly. Many players are now choosing online platforms for convenience, fast payouts, and better promotions.
 
-Here are some ideas to get you started:
+## 🎰 Online Slots Cambodia
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Online slots are the most popular choice. Players can enjoy:
+
+- High RTP games  
+- Mobile-friendly gameplay  
+- Providers like Jili, Pragmatic Play, MegaH5  
+
+👉 Explore trusted slots here: https://angkor33.com
+
+## 🎲 Live Casino
+
+Live casino games bring real casino experience online.
+
+Popular games:
+- Baccarat  
+- Roulette  
+- Blackjack  
+
+## 💰 Free Credit & Bonuses
+
+Top platforms offer:
+- Welcome bonus  
+- Free credit  
+- Cashback rewards  
+
+👉 Check latest promotions: https://angkor33.com
+
+## 📱 Mobile Casino
+
+Most Cambodian players use mobile devices. A good casino should support Android and iOS with fast performance.
+
+## 💳 Payment Methods
+
+Trusted platforms support:
+- ABA  
+- Wing  
+- TrueMoney  
+- KHQR  
+
+## 🔥 Recommended Platform
+
+👉 Visit: https://angkor33.com
+
+---
+
+Choosing the right online casino ensures a safe and profitable experience.
